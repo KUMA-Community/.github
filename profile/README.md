@@ -6,4 +6,4 @@
 - [Telegram канал](https://t.me/kumasiem)
 - [KUMA Community KnowledgeBase](https://kb.kuma-community.ru/)
 
-**©** С любовью команда пресейл ЛК ;)
+**©** С любовью команда пресейл ЛК :)
